@@ -1,6 +1,6 @@
 - Hi, I’m @Kittycraft0
 - I’m interested in gaming and coding, and I find both fun
-- I’m currently learning stuff in school, some highlights of next year for me is that I will be going into statistics, precalculus, and physics.
+- I’m currently learning stuff in school, some highlights this year for me is that I will be going into statistics, precalculus, and physics.
 - I’m open to collaborating on something fun
 - How to reach me: Kittycraft0#0109 on discord
 
